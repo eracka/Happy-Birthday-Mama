@@ -1,1 +1,3 @@
-# Happy-Birthday-Mama
+Su Gimtadieniu Mama!
+
+Šmyliu tave labai
